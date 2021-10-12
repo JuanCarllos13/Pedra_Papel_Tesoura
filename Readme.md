@@ -1,0 +1,1 @@
+Olá, esse é um jogo muito conhecido pelas pessoas, seu nome é "Jokenpo".
